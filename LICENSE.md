@@ -1,4 +1,4 @@
-# 
+# Turbo new token sniper bot flujo de trabajo para Mac OS | Personalizado new token sniper bot flujo de trabajo para PC Windows. Con limitación de velocidad y verificación de contrato — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
